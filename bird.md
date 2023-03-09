@@ -7,7 +7,7 @@ The government doesn't want you to know what I'm about to tell you. This knowled
 Continue if you are a warrior for the truth
 ```
 
-  **Birds Are Not Real.** Or at least around 27% of birds. Have you ever seen a bird watching you a little bit *too* closely? Only to have it fly away when you start to question its motives... This is no coincedence. I am not here claiming all birds are fake or anything ridiculous like that, birds have been around for millions of years and are a key species in many environments. But not every bird you see is all it seems. I have done extensive research and much more extensive bird watching for the past 30 years of my life, and have determined that a certain portion of the birds you see in the sky are nothing more than machines. 
+  **Birds Are Not Real.** Or at least around 27% of birds aren't. Have you ever seen a bird watching you a little bit *too* closely? Only to have it fly away when you start to question its motives... This is no coincedence. I am not here claiming all birds are fake or anything ridiculous like that, birds have been around for millions of years and are a key species in many environments. But not every bird you see is all it seems. I have done extensive research and much more extensive bird watching for the past 30 years of my life, and have determined that a certain portion of the birds you see in the sky are nothing more than machines. 
 
 ![Image](https://bollesbugleonline.com/wp-content/uploads/2021/03/bird-diagram-900x658.png)
 
